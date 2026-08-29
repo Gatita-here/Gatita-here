@@ -5,3 +5,7 @@ hii I m improving myself in painting !!
 
 I can only draw this much with my finger and phone ...
  this is grox and froggy btw <3 
+
+This is a drawing I made a long time ago because I was bored '^` 
+ 
+![image alt ](https://github.com/Gatita-here/Gatita-here/blob/c0064968ba94105b11cb613c1eb34a6515a869e4/Ba%C5%9Fl%C4%B1ks%C4%B1z62_0003-07-18.png)
