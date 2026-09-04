@@ -36,6 +36,7 @@
 
 ✧ Thankkk yuuuu so much for reading this far I wanted to tell you a lot about myself here and I hope I've done it well !!!! 💬 ok byee gatita loves yuu
 
+![image alt ](https://github.com/Gatita-here/Gatita-here/blob/7544a977ba5a9d51e2ce4249db9a26c77028ba82/Ba%C5%9Fl%C4%B1ks%C4%B1z90.png)
 
 ![video](./0989d6147b974564eea8dafaa0a29480_full.gif)
  
