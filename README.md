@@ -27,6 +27,7 @@
 
 ╰ ✧ I love parrots very much I mean I love all animals but parrots are so cute aww aww I have a parrot ! her name is RENKLI lol This is a Turkish name its English equivalent means COLORFUL We bought her 4 years ago I lov her sm Even when my family tried to sell it I refused hh
 
+![image alt ](https://github.com/Gatita-here/Gatita-here/blob/3cfe7fa12bc6eccbdda45a187e614f452259ca90/Ba%C5%9Fl%C4%B1ks%C4%B1z101.png)
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/adc913b17ae12cf282197f26fd648c9a392d774e/Ba%C5%9Fl%C4%B1ks%C4%B1z93%20(1).png)
 
 
