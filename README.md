@@ -1,6 +1,7 @@
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/38ce5c5d11599f854ce7d1285da0233e21efd509/Ba%C5%9Fl%C4%B1ks%C4%B1z90.png)
 
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/142a490c058ecb7a9249cd4151e92b5e89c6b91f/Ba%C5%9Fl%C4%B1ks%C4%B1z95.png)
+
 ✧ hihihi I'm gatita ! or elf, 
 
 ✧ I am a 14 yo girl !
@@ -22,6 +23,8 @@
 ✧ When school starts I will only be active on weekends and holidays ❕cuz I'm going to boarding school Hh... 
 
 ✧ I've been drawing since elementary school and I've improved a lot since then, but I still can't draw that well wuu
+
+✧ I've always been terrible at digital drawing because I've never had a tablet since I was little, and drawing on a phone is very difficult
 
 ✧ I love parrots very much I mean I love all animals but parrots are so cute aww aww I have a parrot ! her name is RENKLI lol This is a Turkish name its English equivalent means COLORFUL We bought her 4 years ago I lov her sm Even when my family tried to sell it I refused hh
 
