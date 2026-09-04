@@ -1,4 +1,4 @@
-![image alt ](https://github.com/Gatita-here/Gatita-here/blob/38ce5c5d11599f854ce7d1285da0233e21efd509/Ba%C5%9Fl%C4%B1ks%C4%B1z90.png)
+![image alt ](https://github.com/Gatita-here/Gatita-here/blob/aa634b75853d9a11b955661c03243436b7f94bb3/Ba%C5%9Fl%C4%B1ks%C4%B1z97.png)
 
 ✧ hihihi I'm gatita ! or elf, 
 
