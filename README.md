@@ -33,7 +33,7 @@
 
 ╰ ✧ Some of my actions might be disturbing I would appreciate it if you could let me know about them !
 
-╰ ✧ Lastly I value my virtual environment very much because I've been clumsy at making irl friends since I was little .. I even have family fights because of this lol ok byee!! 
+╰ ✧ Lastly I value my virtual environment very much because I've been clumsy at making irl friends since I was little .. I even have family fights because of this lol ok byee!! ✴️
 
 ╰ ✧ Thankkk yuuuu so much for reading this far I wanted to tell you a lot about myself here and I hope I've done it well !!!! 💬 ok byee gatita loves yuu
 
@@ -41,10 +41,10 @@
 
 ![video](./0989d6147b974564eea8dafaa0a29480_full.gif)
  
- ╰ ｡⁠*ﾟThe video belongs to a content creator on TikTok and it already says so on the label !
-
+ ╰ ｡⁠*ﾟThe video belongs to a content creator on TikTok and it already says so on the label ! ♦️
+![image alt ](https://github.com/Gatita-here/Gatita-here/blob/ecd1c296a190034b37c9af4bffcdb93d855f2658/790cec85fa743f4d236171e2c2b247db.jpg)
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/7e7995abfa1e601a7c0aceacbbdcbc52eea980ce/Ba%C5%9Fl%C4%B1ks%C4%B1z81.png) 
 
-╰ ꒰ YOOO WHY ARE YU STILL HERE NOW SIGN MY ATABOOK ! ｡⁠*ﾟ⁠+
+╰ ꒰ YOOO WHY ARE YU STILL HERE NOW SIGN MY ATABOOK ! ｡⁠*ﾟ⁠+ 🍁
 
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/dbc360f592314b1661535c25b768bc5034113ac0/Ba%C5%9Fl%C4%B1ks%C4%B1z91.png)
