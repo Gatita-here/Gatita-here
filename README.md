@@ -15,7 +15,7 @@
 
 ╰ ✧ My favorite characters are Grox and Elliot hh
 
-╰ ✧ Some of my friends are very funny If they say something to yu, pls don't take it to heart. No matter what I say to them, they don't care about me .. 
+╰ ✧ Some of my friends are very fun! if they say something to yu, please dont take it too much! no matter what I say to some of them, dont care about me ...
 
 ╰ ✧ When school starts I will only be active on weekends and holidays ❕cuz I'm going to boarding school Hh... 
 
