@@ -7,25 +7,25 @@
 
 ╰ ✧ My English is a bit poor so I sometimes have difficulty communicating
 
-╰ ✧ I have a partnerr ! and I've been so happy since the day I met her she's added so much to my life that I don't know how to thank her enough ❤️ I will always love her ｡⁠*ﾟ ! my one and only babiii - > [@sorrowfulpredict](https://github.com/sorrowfulpredict) 🍁 ♡
+╰ ✧ I have a partnerr ! and I've been so happy since the day I met her she's added so much to my life that I don't know how to thank her enough ❤️ I will always love her ｡⁠*ﾟ ! my one and only babiii -  [@sorrowfulpredict](https://github.com/sorrowfulpredict) 🍁 ♡
 
-╰ ✧ Pls don't be shy when yu're with me feel free to talk however yu like ! uh btw I don't really like shy people idk 
+╰ ✧ Pls don't be shy when yu're with me feel free to talk however yu like ! uh btw I don't really like shy people idk 🔸✳️
 
-╰ ✧ INT,C+H ALWAYS ❕❕ but not when I'm with my partner** 
+╰ ✧ INT,C+H ALWAYS ❕❕ but not when I'm with my partner** ! ｡⁠*ﾟ
 
-╰ ✧ DNC my skins pls..
+╰ ✧ DNC my skins pls.. 🔸
 
-╰ ✧ My favorite characters are Grox and Elliot hh
+╰ ✧ My favorite characters are Grox and Elliot hh 👀
 
-╰ ✧ Some of my friends are very fun! if they say something to yu, please dont take it too much! no matter what I say to some of them, dont care about me ...
+╰ ✧ Some of my friends are very fun! if they say something to yu, please dont take it too much! no matter what I say to some of them, dont care about me ... 🍄 🍂
 
-╰ ✧ When school starts I will only be active on weekends and holidays ❕cuz I'm going to boarding school Hh... 
+╰ ✧ When school starts I will only be active on weekends and holidays ❕cuz I'm going to boarding school Hh... 🍁
 
-╰ ✧ I've been drawing since elementary school and I've improved a lot since then, but I still can't draw that well wuu
+╰ ✧ I've been drawing since elementary school and I've improved a lot since then, but I still can't draw that well wuu 🍂
 
 ╰ ✧ I've always been terrible at digital drawing because I've never had a tablet since I was little, and drawing on a phone is very difficult
 
-╰ ✧ I love parrots very much I mean I love all animals but parrots are so cute aww aww I have a parrot ! her name is RENKLI lol This is a Turkish name its English equivalent means COLORFUL We bought her 4 years ago I lov her sm Even when my family tried to sell it I refused hh
+╰ ✧ I love parrots very much I mean I love all animals but parrots are so cute aww aww I have a parrot ! her name is RENKLI lol This is a Turkish name its English equivalent means COLORFUL We bought her 4 years ago I lov her sm Even when my family tried to sell it I refused hh ✨
 
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/3cfe7fa12bc6eccbdda45a187e614f452259ca90/Ba%C5%9Fl%C4%B1ks%C4%B1z101.png)
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/adc913b17ae12cf282197f26fd648c9a392d774e/Ba%C5%9Fl%C4%B1ks%C4%B1z93%20(1).png)
