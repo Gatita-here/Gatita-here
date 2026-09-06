@@ -7,6 +7,8 @@
 
 ╰ ✧ My English is a bit poor so I sometimes have difficulty communicating
 
+╰ ✧ I have a partnerr ! and I've been so happy since the day I met her she's added so much to my life that I don't know how to thank her enough ❤️ I will always love her ｡⁠*ﾟ ! my one and only babiii - > [@sorrowfulpredict](https://github.com/sorrowfulpredict) 🍁 ♡
+
 ╰ ✧ Pls don't be shy when yu're with me feel free to talk however yu like ! uh btw I don't really like shy people idk 
 
 ╰ ✧ INT,C+H ALWAYS ❕❕ but not when I'm with my partner** 
