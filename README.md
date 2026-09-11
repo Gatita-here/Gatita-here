@@ -19,6 +19,8 @@
 
 ╰ ✧ Some of my friends are very fun! if they say something to yu, please dont take it too much! no matter what I say to some of them, dont care about me ... 🍄 🍂
 
+╰ ✧ In my country friendship and relationships are highly valued but if I ended up being a bad friend because I didn't know how to show these things to my friends abroad I sincerely apologize I wasn't myself during this holiday So I was never myself .. I hope yu understand me 
+
 ╰ ✧ When school starts I will only be active on weekends and holidays ❕cuz I'm going to boarding school Hh... 🍁
 
 ╰ ✧ I've been drawing since elementary school and I've improved a lot since then, but I still can't draw that well wuu 🍂
