@@ -42,10 +42,11 @@
 <details>
 <summary> pt info / about me </summary>
 
-             <spanstyle="color:#451313;">C+h enc</span> 
+             ${\textsf{\color{#0D1B4C}C+H}}$
+         ${\textsf{\color{#451313}ALWAYS}}$
 
-          dni while I'm with my <span style="color:#451313;">PARTNER</span>
+          dni while I'm with my ${\textsf{\color{$451313}PARTNER}}$
 
-          I change from day to day sometimes I can be <span style="color:#0D1B4C;">cold</span> :C
+          I change from day to day sometimes I can be ${\textsf{\color{#0D1B4C}cold}}$ :C
 
            
