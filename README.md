@@ -5,9 +5,6 @@
 
  <details>
 <summary> best oomfs! </summary>
-  
-<details>
-<summary>♡ ponytowns grox / ty ♡</summary>
 
   [sealsoro](https://github.com/sealsoro)
  [Twixxel-Lessgo](https://github.com/Twixxel-Lessgo)
@@ -15,8 +12,9 @@
  [K1R5MM5N](https://github.com/K1R5MM5N) ❤️ !!
 
 </details>
-
-  [kaotawn](https://github.com/kaotawn)
+<summary> ponytowns grox / Ty <summary>
+ 
+ [kaotawn](https://github.com/kaotawn)
 [ponychievements](https://github.com/ponychievements)  [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall)
 [pt-heavyfictkin](https://github.com/pt-heavyfictkin)
  [pt-ship-nominations](https://github.com/pt-ship-nominations)
