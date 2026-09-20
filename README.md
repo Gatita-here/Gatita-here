@@ -43,14 +43,14 @@
 <summary> pt info / about me </summary>
  
 
- ${\textsf{\color{#0D1B4C}C+H}}$
+. .  ${\textsf{\color{#0D1B4C}C+H}}$
          ${\textsf{\color{#451313}ALWAYS}}$
 
-   dni while I'm with my ${\textsf{\color{#451313}PARTNER}}$
+ . .   dni while I'm with my ${\textsf{\color{#451313}PARTNER}}$
 
-   I change from day to day sometimes I can be ${\textsf{\color{#0D1B4C}cold}}$ 
+. .    I change from day to day sometimes I can be ${\textsf{\color{#0D1B4C}cold}}$ 
 
-   I'm very busy with ${\textsf{\color{#451313}SCHOOL}}$ I'm home on weekends and Wednesdays !
+. .    I'm very busy with ${\textsf{\color{#451313}SCHOOL}}$ I'm home on weekends and Wednesdays !
 
-${\textsf{\color{#0D1B4C}INT}}$ ALWAYS !!!! 
+. . ${\textsf{\color{#0D1B4C}INT}}$ ALWAYS !!!! 
            
