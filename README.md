@@ -6,10 +6,14 @@
  <details>
 <summary> best oomfs! </summary>
 
-  [sealsoro](https://github.com/sealsoro)
- [Twixxel-Lessgo](https://github.com/Twixxel-Lessgo)
- [Tailingman](https://github.com/Tailingman) 
- [K1R5MM5N](https://github.com/K1R5MM5N) ❤️ !!
+
+ [SORO](https://github.com/sealsoro)
+ 
+ [TWIX](https://github.com/Twixxel-Lessgo)
+ 
+ [TAILINGMAN](https://github.com/Tailingman) 
+ 
+ [ECO](https://github.com/K1R5MM5N) ❤️ !!
 
 </details>
 
