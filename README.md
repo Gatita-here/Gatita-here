@@ -41,12 +41,12 @@
 
 <details>
 <summary> pt info / about me </summary>
-
-             ${\textsf{\color{#0D1B4C}C+H}}$
+ 
+ ${\textsf{\color{#0D1B4C}C+H}}$
          ${\textsf{\color{#451313}ALWAYS}}$
 
-          dni while I'm with my ${\textsf{\color{$451313}PARTNER}}$
+   dni while I'm with my ${\textsf{\color{$451313}PARTNER}}$
 
-          I change from day to day sometimes I can be ${\textsf{\color{#0D1B4C}cold}}$ :C
+   I change from day to day sometimes I can be ${\textsf{\color{#0D1B4C}cold}}$ 
 
            
