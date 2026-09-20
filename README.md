@@ -1,4 +1,4 @@
-![image alt ](https://github.com/Gatita-here/Gatita-here/blob/aa634b75853d9a11b955661c03243436b7f94bb3/Ba%C5%9Fl%C4%B1ks%C4%B1z97.png)
+![image alt ](https://github.com/Gatita-here/Gatita-here/blob/93f829f56515150753c5bce6c6efe08a0ba7cd1f/Ba%C5%9Fl%C4%B1ks%C4%B1z119_20260920114619.png)
 
 
 ![GIF](69928648fb7f4b53b40e923228438444.gif)
