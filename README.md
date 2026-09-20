@@ -13,6 +13,7 @@
 
 </details>
 
+<details>
 <summary> ponytowns grox / Ty </summary>
  
  [kaotawn](https://github.com/kaotawn)
@@ -26,4 +27,5 @@
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/ce8923fb351e728de5301cd516a133915eee036c/Ba%C5%9Fl%C4%B1ks%C4%B1z116_20260920112627.png)
 
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/67ac7df2557ed90ad7d10ae8969ac3b54fe4406e/Ba%C5%9Fl%C4%B1ks%C4%B1z91.png)
+
 
