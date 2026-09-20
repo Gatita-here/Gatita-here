@@ -7,11 +7,11 @@
 
 
 <details>
-<summary>♡ ponytowns grox ♡</summary>
+<summary>♡ ponytowns grox / ty ♡</summary>
 
   [kaotawn](https://github.com/kaotawn)
 [ponychievements](https://github.com/ponychievements)  [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall)
 [pt-heavyfictkin](https://github.com/pt-heavyfictkin)
  [pt-ship-nominations](https://github.com/pt-ship-nominations)
-
+✧ [pt-friendships](https://github.com/pt-friendships)
 </details>
