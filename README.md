@@ -56,3 +56,8 @@
 
 . . ${\textsf{\color{#451313}DO}}$ ${\textsf{\color{#0D1B4C}NOT}}$ ${\textsf{\color{#451313}COPY}}$
            
+I won't use coloring cuz I'm too lazy
+
+. . I like to say I love yu to the ppl I care about but .. this rare .. 
+
+still wip cuz I am tired 🤤..
