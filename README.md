@@ -13,7 +13,8 @@
  
  [TAILINGMAN](https://github.com/Tailingman) 
  
- [ECO](https://github.com/K1R5MM5N) ❤️ !!
+ [ECO](https://github.com/K1R5MM5N)  
+ !!
 
 </details>
 
