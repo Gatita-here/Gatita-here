@@ -39,4 +39,13 @@
 
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/67ac7df2557ed90ad7d10ae8969ac3b54fe4406e/Ba%C5%9Fl%C4%B1ks%C4%B1z91.png)
 
+<details>
+<summary> pt info / about me </summary>
 
+             <spanstyle="color:#451313;">C+h enc</span> 
+
+          dni while I'm with my <span style="color:#451313;">PARTNER</span>
+
+          I change from day to day sometimes I can be <span style="color:#0D1B4C;">cold</span> :C
+
+           
