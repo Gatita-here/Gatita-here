@@ -65,3 +65,11 @@ I won't use coloring cuz I'm too lazy
 . . I like to say I love yu to the ppl I care about but .. this rare .. 
 
 still wip cuz I am tired 🤤..
+
+
+
+
+
+
+
+ I love yu forever ❤️ [sorrowfulpredict](https://github.com/sorrowfulpredict)
