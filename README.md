@@ -35,6 +35,8 @@
 
  [pt-ship-nominations](https://github.com/pt-ship-nominations)
 
+[choco-town](https://github.com/choco-town)
+ 
  [pt-friendships](https://github.com/pt-friendships)
 
 </details>
