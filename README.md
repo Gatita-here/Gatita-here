@@ -66,7 +66,7 @@ I won't use coloring cuz I'm too lazy
 
 still wip cuz I am tired 🤤..
 
-
+</details>
 
 
 
