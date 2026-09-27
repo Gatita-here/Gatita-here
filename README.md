@@ -36,4 +36,4 @@
 ｡･::･ﾟ★,｡･::･ﾟ☆｡･::･ﾟ★,｡･::･ﾟ
 
 
- I love yu forever ♡[sorrowfulpredict](https://github.com/sorrowfulpredict)
+ ⍣⍟  ℐ 𝓁ℴ𝓋ℯ 𝓎𝓊  ☆⚟ [sorrowfulpredict](https://github.com/sorrowfulpredict)
