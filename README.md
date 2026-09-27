@@ -25,7 +25,7 @@
 
  [MISTYDEV](https://github.com/mistydev20220)
 
- [SXARIXIES](https://github.com/Sxarixies)
+ [SXARIXIEZ](https://github.com/Sxarixiez)
 
  [NAN](https://github.com/I-lovehim)
 
