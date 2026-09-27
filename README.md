@@ -35,7 +35,7 @@
 
 
 <a href="https://elliott.atabook.org">
-  <img src="./file_00000000c3f881f4837fb9cf6a84fcda.png" alt="ATABOOK">
+  <img src="./https://github.com/Gatita-here/Gatita-here/blob/fba989ca872522b00259c60cbb7158c95a595116/Ba%C5%9Fl%C4%B1ks%C4%B1z121.png" alt="ATABOOK">
 </a>
 
  ⍣⍟  ℐ 𝓁ℴ𝓋ℯ 𝓎𝓊  ☆⚟ [sorrowfulpredict](https://github.com/sorrowfulpredict)
