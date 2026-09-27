@@ -1,7 +1,8 @@
 
-
+ ୨୧ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
  <details>
 <summary> best oomfs! </summary>
+
 
 
  [SORO](https://github.com/sealsoro)
@@ -44,30 +45,7 @@
 
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/67ac7df2557ed90ad7d10ae8969ac3b54fe4406e/Ba%C5%9Fl%C4%B1ks%C4%B1z91.png)
 
-<details>
-<summary> pt info / about me </summary>
- 
 
-. .  ${\textsf{\color{#0D1B4C}C+H}}$
-         ${\textsf{\color{#451313}ALWAYS}}$
-
- . .   dni while I'm with my ${\textsf{\color{#451313}PARTNER}}$
-
-. .    I change from day to day sometimes I can be ${\textsf{\color{#0D1B4C}cold}}$ 
-
-. .    I'm very busy with ${\textsf{\color{#451313}SCHOOL}}$ I'm home on weekends and Wednesdays !
-
-. . ${\textsf{\color{#0D1B4C}INT}}$ ALWAYS !!!! 
-
-. . ${\textsf{\color{#451313}DO}}$ ${\textsf{\color{#0D1B4C}NOT}}$ ${\textsf{\color{#451313}COPY}}$
-           
-I won't use coloring cuz I'm too lazy
-
-. . I like to say I love yu to the ppl I care about but .. this rare .. 
-
-still wip cuz I am tired 🤤..
-
-</details>
 
 
 
