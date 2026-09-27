@@ -10,9 +10,7 @@
 
 
 
- [SORO](https://github.com/sealsoro)
- 
- [TWIX](https://github.com/Twixxel-Lessgo) ୨୧ [TAILINGMAN](https://github.com/Tailingman) ୨୧ [ECO](https://github.com/K1R5MM5N) ୨୧  [KYU](https://github.com/kyumishin) ୨୧ [RAIN](https://github.com/Itrappedfan) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [MISTYDEV](https://github.com/mistydev20220)
+ [SORO](https://github.com/sealsoro) ୨୧ [TWIX](https://github.com/Twixxel-Lessgo) ୨୧ [TAILINGMAN](https://github.com/Tailingman) ୨୧ [ECO](https://github.com/K1R5MM5N) ୨୧  [KYU](https://github.com/kyumishin) ୨୧ [RAIN](https://github.com/Itrappedfan) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [MISTYDEV](https://github.com/mistydev20220)
  ୨୧ [SXARIXIEZ](https://github.com/Sxarixiez) ୨୧ [NAN](https://github.com/Ilove-him)
 
 </details>
@@ -24,19 +22,7 @@
  <summary> ponytowns grox / Ty </summary>
  
 
- [kaotawn](https://github.com/kaotawn)
-
-[ponychievements](https://github.com/ponychievements)  
-
-[PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall)
-
-[pt-heavyfictkin](https://github.com/pt-heavyfictkin)
-
- [pt-ship-nominations](https://github.com/pt-ship-nominations)
-
-[choco-town](https://github.com/choco-town)
- 
- [pt-friendships](https://github.com/pt-friendships)
+ [kaotawn](https://github.com/kaotawn) ୨୧ [ponychievements](https://github.com/ponychievements) ୨୧ [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) ୨୧ [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ୨୧ [pt-ship-nominations](https://github.com/pt-ship-nominations) ୨୧ [choco-town](https://github.com/choco-town) ୨୧ [pt-friendships](https://github.com/pt-friendships)
 
 </details>
 
