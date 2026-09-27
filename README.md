@@ -17,12 +17,19 @@
  
  [ECO](https://github.com/K1R5MM5N)  
 
+ [KYU](https://github.com/kyumishin)
+
   [RAIN](https://github.com/Itrappedfan)
 
  [FOOD](https://github.com/Princ3ssLuna)
 
  [MISTYDEV](https://github.com/mistydev20220)
 
+ [SXARIXIES](https://github.com/Sxarixies)
+
+ [NAN](https://github.com/I-lovehim)
+
+ 
 </details>
 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆
