@@ -1,6 +1,6 @@
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/82e79ecf8ef562ed5044d23dcd628ef69e5e02bd/Ba%C5%9Fl%C4%B1ks%C4%B1z120%20(2).png)
 
- ୨୧ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
+ ୨୧ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
  
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
  
