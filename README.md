@@ -12,25 +12,8 @@
 
  [SORO](https://github.com/sealsoro)
  
- [TWIX](https://github.com/Twixxel-Lessgo)
- 
- [TAILINGMAN](https://github.com/Tailingman) 
- 
- [ECO](https://github.com/K1R5MM5N)  
+ [TWIX](https://github.com/Twixxel-Lessgo) [TAILINGMAN](https://github.com/Tailingman)  [ECO](https://github.com/K1R5MM5N)  [KYU](https://github.com/kyumishin) [RAIN](https://github.com/Itrappedfan) [FOOD](https://github.com/Princ3ssLuna) [MISTYDEV](https://github.com/mistydev20220)  [SXARIXIEZ](https://github.com/Sxarixiez) [NAN](https://github.com/Ilove-him)
 
- [KYU](https://github.com/kyumishin)
-
-  [RAIN](https://github.com/Itrappedfan)
-
- [FOOD](https://github.com/Princ3ssLuna)
-
- [MISTYDEV](https://github.com/mistydev20220)
-
- [SXARIXIEZ](https://github.com/Sxarixiez)
-
- [NAN](https://github.com/Ilove-him)
-
- 
 </details>
 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆
