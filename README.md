@@ -27,7 +27,7 @@
 
  [SXARIXIEZ](https://github.com/Sxarixiez)
 
- [NAN](https://github.com/I-lovehim)
+ [NAN](https://github.com/Ilove-him)
 
  
 </details>
