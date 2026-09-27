@@ -19,7 +19,7 @@
 
 <details>
 
- <summary> ponytowns grox / Ty </summary>
+ <summary> 𝒫ℴ𝓃𝓎𝓉ℴ𝓌𝓃'𝓈 𝒢ℛ𝒪𝒳 / 𝓉𝓎 </summary>
  
 
  [kaotawn](https://github.com/kaotawn) ୨୧ [ponychievements](https://github.com/ponychievements) ୨୧ [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) ୨୧ [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ୨୧ [pt-ship-nominations](https://github.com/pt-ship-nominations) ୨୧ [choco-town](https://github.com/choco-town) ୨୧ [pt-friendships](https://github.com/pt-friendships)
