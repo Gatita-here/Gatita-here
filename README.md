@@ -30,11 +30,6 @@
 
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/67ac7df2557ed90ad7d10ae8969ac3b54fe4406e/Ba%C5%9Fl%C4%B1ks%C4%B1z91.png)
 
-<a href="https://elliott.atabook.org">
-  <img src="./https://github.com/Gatita-here/Gatita-here/blob/e6e40e7a2574c4d2c153560c28624d842ba890ca/file_00000000ab3c82469b7b25687a2cc334.png".png alt="Atabook"
-</a>
-
-
 
 ｡･::･ﾟ★,｡･::･ﾟ☆｡･::･ﾟ★,｡･::･ﾟ
 
