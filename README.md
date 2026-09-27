@@ -25,8 +25,6 @@
 
 <details>
 
- ![gif](./f9129ff6f32b45b3a4fdba0683397a9f.gif)
-
  <summary> ponytowns grox / Ty </summary>
  
 
