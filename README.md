@@ -10,8 +10,8 @@
 
 
 
- [SORO](https://github.com/sealsoro) ୨୧ [TWIX](https://github.com/Twixxel-Lessgo) ୨୧ [TAILINGMAN](https://github.com/Tailingman) ୨୧ [ECO](https://github.com/K1R5MM5N) ୨୧  [KYU](https://github.com/kyumishin) ୨୧ [RAIN](https://github.com/Itrappedfan) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [MISTYDEV](https://github.com/mistydev20220)
- ୨୧ [SXARIXIEZ](https://github.com/Sxarixiez) ୨୧ [NAN](https://github.com/Ilove-him)
+ [SORO](https://github.com/sealsoro) ୨୧ [TWIX](https://github.com/Twixxel-Lessgo) ୨୧ [TAILINGMAN](https://github.com/Tailingman) ୨୧ [ECO](https://github.com/K1R5MM5N) ୨୧  [KYU](https://github.com/kyumishin) ୨୧ [RAIN](https://github.com/Itrappedfan) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [MISTYDEV](https://github.com/mistydev20220) ୨୧ 
+ [SLEEPY.] (https://github.com/sorrowfulpredict) ୨୧ [SXARIXIEZ](https://github.com/Sxarixiez) ୨୧ [NAN](https://github.com/Ilove-him)
 
 </details>
 
@@ -38,4 +38,4 @@
   <img src="https://raw.githubusercontent.com/Gatita-here/Gatita-here/fba989ca872522b00259c60cbb7158c95a595116/Ba%C5%9Fl%C4%B1ks%C4%B1z121.png">
 </a>
 
- ⍣⍟  ℐ 𝓁ℴ𝓋ℯ 𝓎𝓊  ☆⚟ [sorrowfulpredict](https://github.com/sorrowfulpredict)
+ ⍣⍟ .. ☆⚟ 
