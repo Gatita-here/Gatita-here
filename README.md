@@ -34,8 +34,7 @@
 ｡･::･ﾟ★,｡･::･ﾟ☆｡･::･ﾟ★,｡･::･ﾟ
 
 
-<a href="https://elliott.atabook.org">
-  <img src="https://raw.githubusercontent.com/Gatita-here/Gatita-here/fba989ca872522b00259c60cbb7158c95a595116/Ba%C5%9Fl%C4%B1ks%C4%B1z121.png">
-</a>
+sign my <a href="https://elliott.atabook.org">
 
- ⍣⍟ .. ☆⚟ 
+  
+ 
