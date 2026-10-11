@@ -1,4 +1,4 @@
-![image alt ](https://github.com/Gatita-here/Gatita-here/blob/82e79ecf8ef562ed5044d23dcd628ef69e5e02bd/Ba%C5%9Fl%C4%B1ks%C4%B1z120%20(2).png)
+![image alt ](https://github.com/Gatita-here/Gatita-here/blob/f11f0784e51ec17b023217b3a03967bc8bc25ff5/Ba%C5%9Fl%C4%B1ks%C4%B1z126_20261011222821.png)
 
  ୨୧ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
  
