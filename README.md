@@ -1,4 +1,4 @@
-[![grox](https://hits.sh/github.com/Gatita-here.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=1000&color=2f3232&labelColor=481a1a)](https://hits.sh/github.com/Gatita-here/)
+[![Hits](https://hits.sh/github.com/Gatita-here.svg?label=grox&extraCount=2000&color=481a1a&labelColor=9f9f9f)](https://hits.sh/github.com/Gatita-here/)
 
 ![image alt ](https://github.com/Gatita-here/Gatita-here/blob/f11f0784e51ec17b023217b3a03967bc8bc25ff5/Ba%C5%9Fl%C4%B1ks%C4%B1z126_20261011222821.png)
 
