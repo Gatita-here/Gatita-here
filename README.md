@@ -12,7 +12,8 @@
 
 
 
- [TWIX](https://github.com/Twixxel-Lessgo) ୨୧ [TAILINGMAN](https://github.com/Tailingman) ୨୧ [ECO](https://github.com/K1R5MM5N) ୨୧  [KYU](https://github.com/kyumishin) ୨୧ [RAIN](https://github.com/Itrappedfan) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [MISTYDEV](https://github.com/mistydev20220) ୨୧ [SXARIXIEZ](https://github.com/Sxarixiez) ୨୧ [NAN](https://github.com/Ilove-him) ୨୧ [MOE](https://github.com/c-utesy)
+ [TWIX](https://github.com/Twixxel-Lessgo) ୨୧ [TAILINGMAN](https://github.com/Tailingman) ୨୧ [ECO](https://github.com/K1R5MM5N) ୨୧  [KYU](https://github.com/kyumishin) ୨୧ 
+ [VIEX](https://github.com/TheHacker7n7) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [MISTYDEV](https://github.com/mistydev20220) ୨୧ [SXARIXIEZ](https://github.com/Sxarixiez) ୨୧ [NAN](https://github.com/Ilove-him) ୨୧ [MOE](https://github.com/c-utesy) ୨୧ [MAOW](https://github.com/VArtfultrust)
 
 </details>
 
