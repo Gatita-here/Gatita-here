@@ -30,7 +30,14 @@
 
  ![gif](b5d2eb95c4f043b1b1c5d28c518d6c54.gif)
 
-Hey Yoo 
+<p align="center">
+  <span style="color: #542d3c; font-family: monospace; font-size: 20px;">
+    Please don't go..<br><br>
+    I'LL EAT YOU WHOLE.<br><br>
+    I love you so..<br><br>
+    I love you so...?
+  </span>
+</p>
 
 [soro](https://github.com/sealsoro) I love yu so much my babii ^^
 
