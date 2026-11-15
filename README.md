@@ -31,7 +31,7 @@
 [soro](https://github.com/sealsoro) I love yu so much my babii ^^
 
 <details>
-<summary> ℴℴ𝓂𝒻 !</summary>
+<summary> </summary>
 
 
 
