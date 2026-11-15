@@ -7,17 +7,7 @@
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
  
  
-
-
-<details>
-
- <summary> 𝒫ℴ𝓃𝓎𝓉ℴ𝓌𝓃'𝓈 𝒢ℛ𝒪𝒳 / 𝓉𝓎 </summary>
  
-  [pt-fashion](https://github.com/pt-fashion) ୨୧ [casinotown](https://github.com/kaotawncasinotown) ୨୧
- [kaotawn](https://github.com/kaotawn) ୨୧ [ponychievements](https://github.com/ponychievements) ୨୧ [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) ୨୧ [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ୨୧ [pt-ship-nominations](https://github.com/pt-ship-nominations) ୨୧ [choco-town](https://github.com/choco-town) ୨୧ [pt-friendships](https://github.com/pt-friendships) ୨୧
- [pt-everypony](https://github.com/pt-everypony)
-
-</details>
 
  ![gif](b5d2eb95c4f043b1b1c5d28c518d6c54.gif)
 
@@ -41,6 +31,17 @@
 
 </details>
 
+
+
+<details>
+
+ <summary> pt's grox </summary>
+ 
+  [pt-fashion](https://github.com/pt-fashion) ୨୧ [casinotown](https://github.com/kaotawncasinotown) ୨୧
+ [kaotawn](https://github.com/kaotawn) ୨୧ [ponychievements](https://github.com/ponychievements) ୨୧ [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) ୨୧ [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ୨୧ [pt-ship-nominations](https://github.com/pt-ship-nominations) ୨୧ [choco-town](https://github.com/choco-town) ୨୧ [pt-friendships](https://github.com/pt-friendships) ୨୧
+ [pt-everypony](https://github.com/pt-everypony)
+
+</details>
 
   
  
