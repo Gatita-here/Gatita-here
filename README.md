@@ -32,9 +32,8 @@
 
 
 
-<p align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Courier+New&size=20&duration=2000&pause=700&color=542D3C&center=true&vCenter=true&width=500&height=50&lines=Please+don't+go..; I'LL+EAT+YOU+WHOLE..;I+love+you+so..;I+love+you+so..?%3F&repeat=true" alt="Typing SVG" />
-</p>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?font=Courier+New&size=20&duration=2200&pause=700&color=542D3C&center=true&vCenter=true&width=500&height=50&repeat=true&lines=Please+don%27t+go..%3BI'LL+EAT+YOU+WHOLE..%3BI+love+you+so..%3BI+love+you+so..?%3F)](https://git.io/typing-svg)
 
 
 
