@@ -18,8 +18,6 @@
 
 
 
-[soro](https://github.com/sealsoro) I love yu so much my babii ^^
-
 <details>
 <summary> </summary>
 
