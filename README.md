@@ -24,7 +24,7 @@
 
 
  [ZHEN](https://github.com/S9okeishere) ୨୧ [TAILINGMAN](https://github.com/Tailingman) ୨୧ [ECO](https://github.com/K1R5MM5N) ୨୧  [KYU](https://github.com/kyumishin) ୨୧ 
- [VIEX](https://github.com/TheHacker7n7) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [ALEX](https://github.com/Xreqy-qrays) ୨୧ [SXARIXIEZ](https://github.com/Sxarixiez) ୨୧ [NAN](https://github.com/midnightstati) ୨୧ [MOE](https://github.com/c-utesy) ୨୧ [MAOW](https://github.com/VArtfultrust) ୨୧ [LARPCHAN](https://github.com/larpishere)
+ [VIEX](https://github.com/TheHacker7n7) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [ALEX](https://github.com/Xreqy-qrays) ୨୧ [SXARIXIEZ](https://github.com/Sxarixiez) ୨୧ [NAN](https://github.com/midnightstati) ୨୧ [MOE](https://github.com/c-utesy) ୨୧ [MAOW](https://github.com/VArtfultrust) ୨୧ [LARPCHAN](https://github.com/larpchan)
  
 
 </details>
