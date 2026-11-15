@@ -31,9 +31,11 @@
  ![gif](b5d2eb95c4f043b1b1c5d28c518d6c54.gif)
 
 
+
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Courier+New&size=20&duration=2200&pause=700&color=542D3C&center=true&vCenter=true&width=400&lines=Please+don't+go..; I'LL+EAT+YOU+WHOLE.;I+love+you+so..;I+love+you+so..?%3F&deleteSpeed=45&repeat=true" />
+  <img src="https://readme-typing-svg.demolab.com/?font=Courier+New&size=20&duration=2000&pause=700&color=542D3C&center=true&vCenter=true&width=500&height=50&lines=Please+don't+go..; I'LL+EAT+YOU+WHOLE..;I+love+you+so..;I+love+you+so..?%3F&repeat=true" alt="Typing SVG" />
 </p>
+
 
 
 [soro](https://github.com/sealsoro) I love yu so much my babii ^^
