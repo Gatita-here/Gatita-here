@@ -55,6 +55,8 @@ $\textcolor{#C58F9D}{\text{𝑺𝒉𝒊𝒏𝒆 𝑭𝒐𝒓𝒆𝒗𝒆𝒓..}}
 
 ![image](https://github.com/Gatita-here/Gatita-here/blob/6ff2ef9a25da9eb9a50d2bc6af2400e50ef67449/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122144603.png)
 
+$\textcolor{#E8DDB5}{\text{˚ ༘♡ ⋆｡˚
+ᥫ᭡₊˚}}$
 
 ![image](https://github.com/Gatita-here/Gatita-here/blob/69b689e8d5510f671b4fc466ccb882883dd0177f/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122135828.png)
 
