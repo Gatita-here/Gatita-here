@@ -1,4 +1,4 @@
-[![Hits](https://hits.sh/github.com/Gatita-here.svg?label=🖤&extraCount=2000&color=481a1a&labelColor=9f9f9f)](https://hits.sh/github.com/Gatita-here/)
+[![Hits](https://hits.sh/github.com/Gatita-here.svg?label=🖤&extraCount=2000&color=a03939&labelColor=9f9f9f)](https://hits.sh/github.com/Gatita-here/)
  
  
  ୨୧ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
