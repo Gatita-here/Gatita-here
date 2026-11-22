@@ -23,17 +23,5 @@
 ![image](https://github.com/Gatita-here/Gatita-here/blob/69b689e8d5510f671b4fc466ccb882883dd0177f/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122135828.png)
 
 
+<span style="color:#C192B6"> PT's grox </span>
 
-
-<details>
-
- <summary> <span style="color:#C192B6"> || PT's GROX ||</span> </summary>
- 
-  [pt-fashion](https://github.com/pt-fashion) ୨୧ [casinotown](https://github.com/kaotawncasinotown) ୨୧
- [kaotawn](https://github.com/kaotawn) ୨୧ [ponychievements](https://github.com/ponychievements) ୨୧ [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) ୨୧ [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ୨୧ [pt-ship-nominations](https://github.com/pt-ship-nominations) ୨୧ [choco-town](https://github.com/choco-town) ୨୧ [pt-friendships](https://github.com/pt-friendships) ୨୧
- [pt-everypony](https://github.com/pt-everypony)
-
-</details>
-
-  
- 
