@@ -22,19 +22,20 @@
 <tr>
 <td align="center">
 
-$\textcolor{#AABBAA}{\text{If I was The Moon}}$
+$\textcolor{#AABBAA}{\text{𝑰𝒇 𝑰 𝒘𝒂𝒔 𝑻𝒉𝒆 𝑴𝒐𝒐𝒏}}$
 
-$\textcolor{#AABBAA}{\text{would You}}$
+$\textcolor{#AABBAA}{\text{𝒘𝒐𝒖𝒍𝒅 𝒀𝒐𝒖}}$
 
-$\textcolor{#929F91}{\text{still look for The Stars?}}$
+$\textcolor{#929F91}{\text{𝒔𝒕𝒊𝒍𝒍 𝒍𝒐𝒐𝒌 𝒇𝒐𝒓 𝑻𝒉𝒆 𝑺𝒕𝒂𝒓𝒔?}}$
 
 <br>
 
-$\textcolor{#B9A9C4}{\text{Only if You Promise}}$
+$\textcolor{#B9A9C4}{\text{
+𝑶𝒏𝒍𝒚 𝒊𝒇 𝒀𝒐𝒖 𝑷𝒓𝒐𝒎𝒊𝒔𝒆}}$
 
-$\textcolor{#B9A9C4}{\text{Me to}}$
+$\textcolor{#B9A9C4}{\text{𝑴𝒆 𝒕𝒐}}$
 
-$\textcolor{#C58F9D}{\text{Shine Forever}}$
+$\textcolor{#C58F9D}{\text{𝑺𝒉𝒊𝒏𝒆 𝑭𝒐𝒓𝒆𝒗𝒆𝒓..}}$
 
 </td>
 </tr>
