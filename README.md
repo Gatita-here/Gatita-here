@@ -1,6 +1,6 @@
 <div align="center">
 
-[![Hits](https://hits.sh/github.com/Gatita-here.svg?label=🧁&extraCount=2000&color=C192B6&labelColor=937BA1)](https://hits.sh/github.com/Gatita-here/)
+[![Hits](https://hits.sh/github.com/Gatita-here.svg?label=🧁&extraCount=2000&color=C192B6&labelColor=E8DDB5)](https://hits.sh/github.com/Gatita-here/)
  
  
  ୨୧ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
