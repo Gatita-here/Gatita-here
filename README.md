@@ -5,8 +5,13 @@
  
 ![image](https://github.com/Gatita-here/Gatita-here/blob/f6058491340c6de75fce8734648698bbc33e379a/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122135516.png)
 
- ୨୧ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
  
+
+| |
+|:---:|
+| <span style="color:#C192B6">{୨୧ ♡}</span>}$<br><br> | 
+
+
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
  
 
