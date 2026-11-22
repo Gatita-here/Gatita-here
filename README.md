@@ -7,9 +7,9 @@
 
  
 
-| |
+
 |:---:|
-| <span style="color:#C192B6">{୨୧ ♡}</span>}$<br><br> | 
+| <span style="color:#C192B6">୨୧ ♡</span>}$<br><br> | 
 
 
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
