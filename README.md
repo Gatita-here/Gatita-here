@@ -46,7 +46,7 @@ $$
 
 $$
 {\color{#C58F9D}\textsf{Shine}}\quad
-{\color{#C58F9D}\textsf{Forever}}
+{\color{#C58F9D}\textsf{Forever,}}
 $$
 
 </td>
