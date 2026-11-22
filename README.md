@@ -14,17 +14,20 @@
  
 
 
+
 <div align="center">
 
-| |
-|:---:|
-| $${\color{#AABBAA}\textsf{If I was The Moon}}$$ |
-| $${\color{#AABBAA}\textsf{would You}}$$ |
-| $${\color{#929F91}\textsf{still look for The Stars?}}$$ |
-| |
-| $${\color{#B9A9C4}\textsf{Only if You Promise}}$$ |
-| $${\color{#B9A9C4}\textsf{Me to}}$$ |
-| $${\color{#C58F9D}\textsf{Shine Forever}}$$ |
+<p>
+<span style="color:#AABBAA">If I was The Moon</span><br>
+<span style="color:#AABBAA">would You</span><br>
+<span style="color:#929F91">still look for The Stars?</span>
+</p>
+
+<p>
+<span style="color:#B9A9C4">Only if You Promise</span><br>
+<span style="color:#B9A9C4">Me to</span><br>
+<span style="color:#C58F9D">Shine Forever</span>
+</p>
 
 </div>
 
