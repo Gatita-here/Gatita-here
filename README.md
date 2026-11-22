@@ -20,16 +20,6 @@
 
 ![image](https://github.com/Gatita-here/Gatita-here/blob/69b689e8d5510f671b4fc466ccb882883dd0177f/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122135828.png)
 
-<details>
-<summary> </summary>
-
-
-
- [ZHEN](https://github.com/S9okeishere) ୨୧ [TAILINGMAN](https://github.com/Tailingman) ୨୧ [ECO](https://github.com/K1R5MM5N) ୨୧  [KYU](https://github.com/kyumishin) ୨୧ 
- [VIEX](https://github.com/TheHacker7n7) ୨୧ [FOOD](https://github.com/Princ3ssLuna) ୨୧ [ALEX](https://github.com/Xreqy-qrays) ୨୧ [SXARIXIEZ](https://github.com/Sxarixiez) ୨୧ [NAN](https://github.com/midnightstati) ୨୧ [MOE](https://github.com/c-utesy) ୨୧ [MAOW](https://github.com/VArtfultrust) ୨୧ [LARPCHAN](https://github.com/larpchan)
- 
-
-</details>
 
 
 
