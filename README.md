@@ -9,7 +9,7 @@
  
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
  
- 
+ ![image](https://github.com/Gatita-here/Gatita-here/blob/f6058491340c6de75fce8734648698bbc33e379a/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122135516.png)
  
  ![gif](b5d2eb95c4f043b1b1c5d28c518d6c54.gif)
 
