@@ -13,45 +13,23 @@
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
  
 
-<table>
-<tr>
-<td align="center">
 
-$$
-{\color{#AABBAA}\textsf{If}}\quad
-{\color{#AABBAA}\textsf{I}}\quad
-{\color{#AABBAA}\textsf{was}}\quad
-{\color{#AABBAA}\textsf{The}}\quad
-{\color{#AABBAA}\textsf{Moon}}\quad
-{\color{#AABBAA}\textsf{would}}\quad
-{\color{#AABBAA}\textsf{You}}
-$$
+<div align="center">
 
-$$
-{\color{#929F91}\textsf{still}}\quad
-{\color{#929F91}\textsf{look}}\quad
-{\color{#929F91}\textsf{for}}\quad
-{\color{#929F91}\textsf{The}}\quad
-{\color{#929F91}\textsf{Stars?}}
-$$
+| |
+|:---:|
+| $${\color{#AABBAA}\textsf{If I was The Moon}}$$ |
+| $${\color{#AABBAA}\textsf{would You}}$$ |
+| $${\color{#929F91}\textsf{still look for The Stars?}}$$ |
+| |
+| $${\color{#B9A9C4}\textsf{Only if You Promise}}$$ |
+| $${\color{#B9A9C4}\textsf{Me to}}$$ |
+| $${\color{#C58F9D}\textsf{Shine Forever}}$$ |
 
-$$
-{\color{#B9A9C4}\textsf{Only}}\quad
-{\color{#B9A9C4}\textsf{if}}\quad
-{\color{#B9A9C4}\textsf{You}}\quad
-{\color{#B9A9C4}\textsf{Promise}}\quad
-{\color{#B9A9C4}\textsf{Me}}\quad
-{\color{#B9A9C4}\textsf{to}}
-$$
+</div>
 
-$$
-{\color{#C58F9D}\textsf{Shine}}\quad
-{\color{#C58F9D}\textsf{Forever,}}
-$$
 
-</td>
-</tr>
-</table>
+
 
  
 ![image](https://github.com/Gatita-here/Gatita-here/blob/e734604b46bba43838c78d490975f4fe5652334a/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122132838.png)
