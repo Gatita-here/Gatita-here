@@ -16,7 +16,7 @@
 
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?font=Courier+New&size=30&duration=2200&pause=700&color=542D3C&center=true&vCenter=true&width=500&height=50&repeat=true&lines=Please+don%27t+go..%3BI'LL+EAT+YOU+WHOLE..%3BI+love+you+so..%3BI+love+you+so..?%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?font=Courier+New&size=30&duration=2200&pause=700&color=a03939&center=true&vCenter=true&width=500&height=50&repeat=true&lines=Please+don%27t+go..%3BI'LL+EAT+YOU+WHOLE..%3BI+love+you+so..%3BI+love+you+so..?%3F)](https://git.io/typing-svg)
 
 ![image](https://github.com/Gatita-here/Gatita-here/blob/69b689e8d5510f671b4fc466ccb882883dd0177f/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122135828.png)
 
