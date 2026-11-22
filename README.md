@@ -28,7 +28,7 @@ $\textcolor{#AABBAA}{\text{𝒘𝒐𝒖𝒍𝒅 𝒀𝒐𝒖}}$
 
 $\textcolor{#929F91}{\text{𝒔𝒕𝒊𝒍𝒍 𝒍𝒐𝒐𝒌 𝒇𝒐𝒓 𝑻𝒉𝒆 𝑺𝒕𝒂𝒓𝒔?}}$
 
-<br> ୭ ˚. ୨୧ ˖ ࣪ ꒰ა ໒꒱ 
+<br> $\textcolor{#C192B6}{\text{୭ ˚. ୨୧ ˖ ࣪ ꒰ა ໒꒱}}$
 
 
 $\textcolor{#B9A9C4}{\text{
