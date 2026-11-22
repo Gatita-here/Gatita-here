@@ -1,3 +1,5 @@
+<div align="center">
+
 [![Hits](https://hits.sh/github.com/Gatita-here.svg?label=🧁&extraCount=2000&color=C192B6&labelColor=937BA1)](https://hits.sh/github.com/Gatita-here/)
  
  
@@ -58,3 +60,6 @@ $\textcolor{#C58F9D}{\text{Shine Forever}}$
 $\color{#9084A4}{\text{PT's grox }}$
 
 ![image](https://github.com/Gatita-here/Gatita-here/blob/f91b229097104a6a1ff25631468de0b407c72138/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122144439.png)
+
+
+</div>
