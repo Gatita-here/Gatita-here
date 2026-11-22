@@ -13,6 +13,54 @@
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
  
 
+<table>
+<tr>
+<td align="center">
+
+${\textsf{\color{#AABBAA}\mathit{If}}}$
+
+${\textsf{\color{#AABBAA}\mathit{I}}}$
+
+${\textsf{\color{#AABBAA}\mathit{was}}}$
+
+${\textsf{\color{#AABBAA}\mathit{The}}}$
+
+${\textsf{\color{#AABBAA}\mathit{Moon}}}$
+
+${\textsf{\color{#AABBAA}\mathit{would}}}$
+
+${\textsf{\color{#AABBAA}\mathit{You}}}$
+
+${\textsf{\color{#929F91}\mathit{still}}}$
+
+${\textsf{\color{#929F91}\mathit{look}}}$
+
+${\textsf{\color{#929F91}\mathit{for}}}$
+
+${\textsf{\color{#929F91}\mathit{The}}}$
+
+${\textsf{\color{#929F91}\mathit{Stars?}}}$
+
+${\textsf{\color{#B9A9C4}\mathit{Only}}}$
+
+${\textsf{\color{#B9A9C4}\mathit{if}}}$
+
+${\textsf{\color{#B9A9C4}\mathit{You}}}$
+
+${\textsf{\color{#B9A9C4}\mathit{Promise}}}$
+
+${\textsf{\color{#B9A9C4}\mathit{Me}}}$
+
+${\textsf{\color{#B9A9C4}\mathit{to}}}$
+
+${\textsf{\color{#C58F9D}\mathit{Shine}}}$
+
+${\textsf{\color{#C58F9D}\mathit{Forever}}}$
+
+</td>
+</tr>
+</table>
+
  
 ![image](https://github.com/Gatita-here/Gatita-here/blob/e734604b46bba43838c78d490975f4fe5652334a/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122132838.png)
 
