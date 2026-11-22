@@ -16,7 +16,7 @@
 
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
  
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 
@@ -43,12 +43,7 @@ $\textcolor{#C58F9D}{\text{𝑺𝒉𝒊𝒏𝒆 𝑭𝒐𝒓𝒆𝒗𝒆𝒓..}}
 </td>
 </tr>
 </table>
-
-
-
-<a href="https://open.spotify.com/search/Bar%20G%C3%B6rsel%20G%C3%B6ksel%20%C4%B0pek%C3%A7i">
-  <img src="https://img.shields.io/badge/♫%20Bar%20G%C3%B6rsel-1DB954?style=flat-square&logo=spotify&logoColor=white">
-</a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  
 ![image](https://github.com/Gatita-here/Gatita-here/blob/e734604b46bba43838c78d490975f4fe5652334a/Ba%C5%9Fl%C4%B1ks%C4%B1z131_20261122132838.png)
 
