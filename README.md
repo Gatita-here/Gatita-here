@@ -9,7 +9,9 @@
 
  
 
-
+<a href="https://open.spotify.com/track/1c2AFg2WpURtpsOTMr6ZBX">
+  <img src="https://img.shields.io/badge/♫_Fame_is_a_Gun-Addison_Rae-191919?style=flat-square&logo=spotify&logoColor=1DB954">
+</a>
 
 
  ![gif](f9129ff6f32b45b3a4fdba0683397a9f.gif)
