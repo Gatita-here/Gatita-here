@@ -17,45 +17,37 @@
 <tr>
 <td align="center">
 
-${\textsf{\color{#AABBAA}\mathit{If}}}$
+$$
+{\color{#AABBAA}\textsf{If}}\quad
+{\color{#AABBAA}\textsf{I}}\quad
+{\color{#AABBAA}\textsf{was}}\quad
+{\color{#AABBAA}\textsf{The}}\quad
+{\color{#AABBAA}\textsf{Moon}}\quad
+{\color{#AABBAA}\textsf{would}}\quad
+{\color{#AABBAA}\textsf{You}}
+$$
 
-${\textsf{\color{#AABBAA}\mathit{I}}}$
+$$
+{\color{#929F91}\textsf{still}}\quad
+{\color{#929F91}\textsf{look}}\quad
+{\color{#929F91}\textsf{for}}\quad
+{\color{#929F91}\textsf{The}}\quad
+{\color{#929F91}\textsf{Stars?}}
+$$
 
-${\textsf{\color{#AABBAA}\mathit{was}}}$
+$$
+{\color{#B9A9C4}\textsf{Only}}\quad
+{\color{#B9A9C4}\textsf{if}}\quad
+{\color{#B9A9C4}\textsf{You}}\quad
+{\color{#B9A9C4}\textsf{Promise}}\quad
+{\color{#B9A9C4}\textsf{Me}}\quad
+{\color{#B9A9C4}\textsf{to}}
+$$
 
-${\textsf{\color{#AABBAA}\mathit{The}}}$
-
-${\textsf{\color{#AABBAA}\mathit{Moon}}}$
-
-${\textsf{\color{#AABBAA}\mathit{would}}}$
-
-${\textsf{\color{#AABBAA}\mathit{You}}}$
-
-${\textsf{\color{#929F91}\mathit{still}}}$
-
-${\textsf{\color{#929F91}\mathit{look}}}$
-
-${\textsf{\color{#929F91}\mathit{for}}}$
-
-${\textsf{\color{#929F91}\mathit{The}}}$
-
-${\textsf{\color{#929F91}\mathit{Stars?}}}$
-
-${\textsf{\color{#B9A9C4}\mathit{Only}}}$
-
-${\textsf{\color{#B9A9C4}\mathit{if}}}$
-
-${\textsf{\color{#B9A9C4}\mathit{You}}}$
-
-${\textsf{\color{#B9A9C4}\mathit{Promise}}}$
-
-${\textsf{\color{#B9A9C4}\mathit{Me}}}$
-
-${\textsf{\color{#B9A9C4}\mathit{to}}}$
-
-${\textsf{\color{#C58F9D}\mathit{Shine}}}$
-
-${\textsf{\color{#C58F9D}\mathit{Forever}}}$
+$$
+{\color{#C58F9D}\textsf{Shine}}\quad
+{\color{#C58F9D}\textsf{Forever}}
+$$
 
 </td>
 </tr>
