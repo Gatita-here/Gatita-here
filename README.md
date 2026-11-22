@@ -27,7 +27,7 @@
 
 <details>
 
- <summary> pt's grox </summary>
+ <summary> <span style="color:#C192B6"> || PT's GROX ||</span> </summary>
  
   [pt-fashion](https://github.com/pt-fashion) ୨୧ [casinotown](https://github.com/kaotawncasinotown) ୨୧
  [kaotawn](https://github.com/kaotawn) ୨୧ [ponychievements](https://github.com/ponychievements) ୨୧ [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) ୨୧ [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ୨୧ [pt-ship-nominations](https://github.com/pt-ship-nominations) ୨୧ [choco-town](https://github.com/choco-town) ୨୧ [pt-friendships](https://github.com/pt-friendships) ୨୧
